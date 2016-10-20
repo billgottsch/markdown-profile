@@ -4,7 +4,7 @@
 
 [LinkedIn](https://www.linkedin.com/in/bill-gottsch-869863128)
 
- #### Hobbies
+#### Hobbies
 
 * Hunting
 * Gaming
